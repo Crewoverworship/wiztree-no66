@@ -1,4 +1,4 @@
-# 
+# new Advanced SystemCare para PC addons é o melhor Advanced SystemCare para PC addons com historico de desinstalacao e perfis de desinstalacao personalizados. Seguro, confiável e
 
 
 
